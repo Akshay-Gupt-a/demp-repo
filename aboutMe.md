@@ -3,3 +3,4 @@ I want to fuck the world , I am doing so hard work but I am unable to achieve my
 I don't know what to do
 I reduce my sleep cycle 
 but till now I am not getting what I want..
+so now bro what ha !!!
